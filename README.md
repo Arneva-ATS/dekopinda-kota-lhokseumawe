@@ -1,1 +1,1 @@
-# dekopinda-kota-lhokseumawe
+# dekopinda-karanganyar
